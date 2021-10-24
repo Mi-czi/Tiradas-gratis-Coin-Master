@@ -5,7 +5,7 @@ Coin Master: - El juego más popular en Internet hoy en día es Coin Master. Es 
 
 Lo más importante del coin master son los rendimientos. Coin Master ofrece recompensas diarias de giros y monedas, que se actualizarán aquí en nuestro sitio. Aquí actualizamos los enlaces para las tiradas gratis diarias y las monedas. Hay unos 4 o 5 enlaces al día. En el que se obtienen entre 50 y 70 giros 2 3 millones de monedas por día. Además, al invitar a un amigo obtendrás entre 70 y 100 tiradas dependiendo de tu nivel.
 
-Tiradas gratis Coin Master.
+ `Tiradas gratis Coin Master.
   <https://descargarpcjuegos.com/tiradas-gratis-coin-master/>`_
 
 También puedes comprar giros en coin master ya que hay varias ofertas en curso. Coin Master ofrece una tirada diaria gratuita y enlaces gratuitos a las monedas que se obtienen en este sitio. Jugar en coin master Se trata de construir una aldea, coleccionar cartas y gestionar tus giros.
