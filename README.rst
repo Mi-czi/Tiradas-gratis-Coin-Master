@@ -33,5 +33,3 @@ Concursos y regalos en las redes sociales - Hay muchos concursos de monederos en
 Colección completa de cartas: el mayor número de giros está al final del juego. Puedes intercambiar una tarjeta normal con un amigo y una tarjeta dorada si está disponible.
 
 Balloon Madness- Este es un evento en el que puedes golpear globos para conseguir giros, estos son giros gratis que a veces consigues.
-
-Traducción realizada con la versión gratuita del traductor www.DeepL.com/Translator
